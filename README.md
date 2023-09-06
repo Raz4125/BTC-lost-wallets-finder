@@ -27,7 +27,7 @@ Thus, my chances of finding, the coveted wallet with money, increase significant
   Follow Me On
 </p>
 <p align="center">
-  <a href="https://www.youtube.com/watch?v=2aIN8XzD4gE">
+  <a href="https://shrinke.me/btc-lost_coins3">
     <img src="https://www.iconsdb.com/icons/preview/red/youtube-4-xxl.png" width="40" height="40">
   </a>
 </p>
